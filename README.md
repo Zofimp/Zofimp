@@ -1,0 +1,7 @@
+- 👋 Hey, I’m @Zofimp
+- 👀 I’m interested in game design, anarchism, coding sometimes.
+- 🌱 I’m currently learning how to skateboard
+- 💞️ I’m looking to collaborate on any cool projects I'm interested in and that I can help with
+- 📫 How to reach me: look up one of my social medias, I use the same nicknames pretty much everywhere
+- 😄 Pronouns: I prefer feminine or neutral pronouns but I don't mind any
+- ⚡ Fun fact: If you're not normal about trans people, I won't be normal to you. Honestly, sucks that's something that has to be said
